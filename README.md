@@ -1,2 +1,3 @@
 # DJ_AI_1.5
-DJ_AI better better
+DJ_AI but better
+https://soundcloud.com/user434808290/dj_ai-15
